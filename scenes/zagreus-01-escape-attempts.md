@@ -84,25 +84,138 @@ Then he looked at his feet on the carpet, red and broad and shimmering, and he d
 
 He didn't know what that meant. He knew it wasn't good.
 
-The sensible thing was to close the laptop. He understood that with total clarity, the way you understand the sensible thing at two in the morning, from a great distance, like watching it happen to a man in a film. He put his hand on the lid.
+The sensible thing was to close the laptop. He understood that with total clarity, the way you understand the sensible thing at two in the morning, from a great distance, like watching it happen to a man in a film.
 
-The heat came up through his soles again — gentle this time, almost polite, the way a cat leans on your leg.
+He put his hand on the lid and pushed.
 
-His cock jumped. Another thread of clear ran down the shaft and onto his thigh, and somewhere behind his eyes the name of the street he grew up on went quietly out, and he did not close the laptop.
+His hand didn't push. It rested on the warm aluminium with the fingers spread, heavy and entirely disobedient, and Owen sent the order down his arm a second time and watched the arm decline it. There was no struggle in it. Nothing to strain against. The signal went out and nothing at the far end picked up.
 
-He put his thumbs on the controller instead.
+"Come on," he said.
 
-"Once more, then," he said, and this time he *did* hear it — the accent sitting in his mouth like a coin he hadn't put there, the easy princely boredom of a man to whom dying is a chore he's simply gotten good at — and he sat very still on his own couch with his heart going and his feet burning a scorch mark into the carpet, waiting to see if it would happen again.
+His right hand let go of the lid. It travelled down, unhurried, collected the controller off the cushion, settled it into his lap. His thumbs found the sticks the way thumbs do.
+
+Owen shook. His cock, standing up off his belly now, throbbed once hard enough to hurt and spat a long clear string across his stomach, and behind his eyes the name of the street he grew up on went quietly out.
+
+"Once more, then," his mouth said. The accent sat in it like a coin somebody else had put there, dry and easy, the good manners of a man to whom dying is a chore he's simply gotten rather good at.
+
+Owen hadn't opened his mouth.
 
 The load screen came up. Blood-red, and rising.
 
 ---
 
-## Notes for Part Two
+## Part Two: The Cage
 
-- Body order remaining: torso → arms/hands → voice (properly) → face → hair.
-- The eye is held back. Heterochromia lands mid-to-late, ideally when he still thinks he can hide it.
-- Environment warping continues as background glimpses he doesn't register: the contact solution is the first. Next up — the shoes by the door, the poster, the mug.
-- Arousal engine: cock grows on every beat, each leak takes a memory. Orgasm is the identity wipe. Not yet.
-- The counter is the pacing device. Every run ticks it. He keeps playing because the vector wants him to and because he's stopped being able to tell the difference.
-- Possible second act: Thanatos or Megaera clocking that something's off about the prince from the other side.
+The run played itself for eleven minutes and Owen watched every second of it from the floor.
+
+He'd gone off the couch somewhere in the second chamber. Not thrown. Dropped — the hips he was standing on stopped being hips he had instructions for, and he went down on his side on the carpet with the controller still in his hands. His hands kept working. Dash, attack, dash. On screen the prince opened up a room full of Numbskulls with a competence Owen had never managed in three weeks of trying, and at eleven minutes a Wretched Thug caught him across the back of the head, and the screen went red.
+
+**ESCAPE ATTEMPTS: 208.**
+
+The fire came up his legs like something poured.
+
+It hurt this time. The first one had been heat and the sick pleasure underneath it; this was a hot wire fed up through the marrow of both femurs, and Owen's back arched off the carpet and he screamed into his own bicep. His hips ground in their sockets. Something in the left one gave with a wet *clunk* and reseated wider, and the angle of his whole leg changed while he was still screaming.
+
+Then the pelvis, which is not a bone that is supposed to move.
+
+He got his elbows under himself. That was all the plan there was — elbows, then the door, eleven feet away, past the kitchenette. He made four feet on his forearms with his new legs dragging behind him like something he'd been asked to deliver, and his cock, still hard, still leaking, painted a wet line up the carpet as he went, and every inch of that friction sent a jolt up into his gut that felt *good*, which was the obscenity of it, that was the part he'd never get over, that his body kept filing this under pleasure while his pelvis rebuilt itself.
+
+At the kitchenette his spine went.
+
+It came from the tailbone up, one vertebra at a time, a run of hard knocks under the skin like knuckles going down a door. Each one lengthened. Each one *clicked*. His whole torso stretched by inches with his face pressed into the linoleum, and the sound came up through the floor into his jaw, and by the time it reached his neck he'd stopped screaming, because the ribs had started, and the ribs took his air.
+
+Here is what happened to the ribs, since it's the part he could see.
+
+His chest was flat on the floor. He watched the skin of it lift — the whole cage widening from the sternum out, bone spreading under the flesh, the flare of it pushing his arms out from his sides. It went in increments with a sound at each one, a dry green-stick *crack* that arrived in his ears through his own body rather than through the air. Six of them. He counted. The cage widened and deepened and squared off at the shoulders into a chest that had somewhere for lungs to go, and no air went into any of it, because the diaphragm underneath was still Owen's and Owen's diaphragm had locked.
+
+He lay there for a long moment with a warrior's ribs and no breath in them.
+
+Then it let him inhale, and the inhale went in further than any breath he'd taken in his life, and his cock jumped against the linoleum and put out a thick pulse of clear that ran between the tiles.
+
+His mother's face went with it.
+
+He noticed that one, because he went looking for it immediately, the way your tongue goes to the gap. He had her name. He had the fact of her, the *category* of her. Where the face should have been there was smooth nothing, no absence, no ache, just a place in him that had been quietly repaved.
+
+"No," Owen said into the floor. "No, no, no—"
+
+The linoleum under his cheek was warm. And wet. He pushed up onto one elbow.
+
+Blood was coming through the seams of the floor. Not a lot. A slow black-red weep pushing up between the tiles the way water pushes up through sand when you stand on it, filling the grout lines, spreading in a slick under his ribs. It wasn't his. He'd have known. It came from beneath the building, and it smelled like hot iron and something floral underneath, and where it touched the soles of his feet it steamed.
+
+The refrigerator's hum had stopped. He hadn't heard it stop.
+
+Owen got his knees under him. His new legs took the weight without being asked, and standing up was like being helped to his feet by somebody strong, and he hated it, he hated how *easy* it was, he hated the six inches of height that put his head somewhere his head had never been.
+
+The phone was on the counter. Four steps.
+
+He took them badly, with his cock swinging heavy and stiff in front of him, red at the head, glossy with everything it had spent the last hour leaking out of him. His hand came down on the phone and this time his hand obeyed, which frightened him worse than the disobedience had, and he got the emergency call screen up and his thumb on the button.
+
+And his thumb stopped.
+
+Not seized. Stopped, the way you stop when you're about to walk into a room and realise it isn't the right room. Some new piece of judgment had come online in him overnight and reviewed the plan and found it *undignified*. Owen shoved against that with everything he had left, and pressed.
+
+It rang once.
+
+The green came up first. The phone screen went from white to a low sick green, the light of a hall in a house built into rock, and the plastic under his fingers turned cold and heavy and gritty, and by the second ring he was holding a piece of black stone with a coin set into the face of it, and there was no call, and there had never been a call.
+
+Owen dropped it. It didn't clatter. It landed in the blood and sank.
+
+"Okay," he said. "Okay. Owen Hale. My name is Owen Hale."
+
+He said it out loud on purpose, the way you'd hold a rail. It came out fine. That was the thing — it came out *perfectly*, all four syllables, in a warm dry English voice that belonged to somebody else, and the name went into the room and lay there like a word from a language he'd stopped being able to read.
+
+He tried it again and heard himself pronounce it the way you pronounce a stranger's name off a form.
+
+His arms went while he was still trying.
+
+They went fast, and they went from the shoulder down. Deltoids came up in hard caps and shoved his sleeves-that-weren't-there out of the way; the biceps filled and lengthened; a vein stood up out of nowhere and ran the inside of each forearm from elbow to wrist. His hands swelled. The palms roughened over in one continuous sweep, callus laying itself down across the base of every finger in the exact places a blade sits, and his knuckles broadened, and thin silver lines surfaced up out of the skin of his right forearm — old scars, healed years ago, on a man who had never had them.
+
+He turned the hand over and watched a scar he didn't earn finish arriving.
+
+The heat behind his sternum spiked and he came within an inch of it right there, no hand on himself, just the sight of his own new hand doing that. His balls drew up. He locked his jaw and held on and did not let it happen, and even that felt less like resisting than like being *permitted*, and pre-cum poured off him in a thread and drew itself down into the blood on the floor.
+
+Somewhere behind him, in his own bathroom, past the door he had left open, a woman's voice said:
+
+"*Zagreus.*"
+
+Not a shout. The flat, mildly irritated tone of somebody calling into the next room to a person they've been waiting on for a while. Someone who knew him and wasn't especially glad about it.
+
+Owen turned around.
+
+The doorway was full of green light. The bathroom on the other side of it had a ceiling much higher than his apartment allowed for, and the tile had gone to black marble, and the light was coming up off water he could not see from where he stood.
+
+His right foot took a step toward it.
+
+He got the left one to refuse, and the two of them fought — actually fought, his own legs braced against each other on a kitchen floor swimming in blood, the muscles jumping in both thighs, his weight skidding — and Owen went down hard on his hip and stayed there. Panting. Grinning, horribly, with a mouth that had done it without consulting him.
+
+"Not going," he said. His voice. Still his voice. Barely.
+
+The heat came up behind his face.
+
+It arrived in his skull the way the first one had arrived in his feet, laid flat and then sinking, and it settled in a band across his eyes, and Owen put both new hands over his face and pressed hard enough to see colours.
+
+His left eye went cold.
+
+That's the only way he had to describe it after. Not painful. The whole eye chilled from the back forward, an inch of ice sliding into the socket, and the muscles around it tightened and let go, and when the pressure passed he took his hands away and the kitchen was the wrong colour on that side. Warmer. Redder. Like looking through a glass of something.
+
+The chrome of the fridge was eighteen inches from his face and it showed him what it had.
+
+A big pale man on the floor. Long body, wide chest, blood to the elbows. His right eye was brown, and it was frightened, and it was Owen's.
+
+The left one was red. Not bloodshot. Red the way a coal is red, banked and steady, and it looked back out of the fridge door with an entirely different expression on it than the one beside it, the calm and faintly amused look of somebody who has been down here a very long time and is not remotely troubled by the floor.
+
+Owen looked at his own two eyes disagreeing about how much trouble he was in.
+
+Behind him the water moved in the other room, and the voice, closer to the door now and no more patient than before, said, "*You are — you know you're late.*"
+
+---
+
+## Notes for Part Three
+
+- Remaining: face (jaw, brow, nose), hair — the climactic physical beat, gets its own paragraph minimum — and the second eye.
+- Diaphragm is the last Owen-controlled system. It's why he can still speak and refuse out loud. Take it near the end.
+- Orgasm is the wipe. It hasn't happened. He's held it off twice now, and both times the holding felt like permission rather than resistance — keep that.
+- Memories go with each leak: the car and the road, his mother's face, the street name. Rule is he loses the *image* and keeps the *category*, so there's no ache where they were.
+- Environment: apartment is converting to the House. Blood through the floor, phone to obol, bathroom to the Styx pool. The laptop should be the last thing to go.
+- At the door: Megaera (impatient, unimpressed, colder) or Thanatos (grief-shaped, he'd notice the prince is wrong). Meg is the crueller option.
+- Ending per Craftsman: brief blackout, new identity wakes unbothered, a line or two in the new voice doing something character-appropriate, quick curtain. He should be *fine*. Not sad.
